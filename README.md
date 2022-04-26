@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Atenasladestroller
 - 👀 I’m interested in Codes to Animal Crossing nl
-- 🌱 I’m currently learning a utilizar el hack pero no me aclaro
+- 🌱 I’m currently learning a utilizar el FBI pero no me aclaro
 - 💞️ I’m looking to collaborate on todo lo que pueda/sepa
 - 📫 How to reach me maripuchiforever@hotmail.com
 
